@@ -15,4 +15,4 @@ who probably saw this coming. <br>
 
 Long live stocks and flows. <br>
 Long live feedback loops.<br>
-And may our simulations forever reinforce themselves—positively, for sure.<br>
+And may our simulations forever reinforce themselves - positively, for sure.<br>
